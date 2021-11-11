@@ -1,1 +1,3 @@
-# responsi-1
+Tidak tidur larut malam
+Bebuat baik kesemua orang 
+Tidak melakukan kriminal
